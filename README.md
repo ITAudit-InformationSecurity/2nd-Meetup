@@ -1,7 +1,7 @@
 Acara Meetup kedua berlokasi di Traveloka.
 
 Pembicara ringan:
-Rungga<br>
+<br>Rungga<br>
 Mada Perdhana<br>
 Rahmat Nurfauzi<br>
 
